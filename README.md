@@ -1,1 +1,1 @@
-My Analysis Journey, working on projects and building my portfolio
+My Data Analysis Journey, working on projects and building my portfolio
